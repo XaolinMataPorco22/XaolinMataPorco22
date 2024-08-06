@@ -7,7 +7,7 @@ Here are some ideas to get you started:
 
 - meu nome é Valdinei
 - leiam Berserk
--   
+- estou no primeiro ano do ensino medio 
 - 
 - 
 - 
